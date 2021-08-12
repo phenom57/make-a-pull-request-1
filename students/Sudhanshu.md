@@ -1,5 +1,5 @@
 # Sudhanshu Rawat
 
-## M.Tech NIT kkkr
+## M.Tech NIT kkr
 
 ## Github
